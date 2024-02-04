@@ -3,6 +3,8 @@ this is who ur talking to.... if you even care...
 
 ![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/54115bec-ce7b-4085-8e28-fec0ff2e7f69)
 
+☁️character is Souma Shiki (just like mr fr) from Play it cool, Guys! / picg. PLEASE watch it, its such a nice casual watch w/ 10 minute episodes
+
 ☁️usually on ponytown while being afk/offtab, feel free to sit with me and my friends! we dont bite (ana does sometimes tho)
 
 ☁️most often in the enstars-genshin area, but if im not there im probably either in the library or in the twst/obey me area in the market
