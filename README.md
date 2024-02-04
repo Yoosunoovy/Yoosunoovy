@@ -9,8 +9,8 @@ most often in the enstars-genshin area, but if im not there im probably either i
 
 no dni list but if you do something that makes me (or my friends) uncomfortable or morally doesnt sit right with me, i just wont interact, dont be a weirdo
 
-![image](https://github.com/Yoosunoovy/v1/assets/155345103/1fc67c2c-e51e-433b-a602-7a58e938c305)
+![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/c07842f1-898f-4d03-ac55-3715987fdd12)
 
 currently mourning starboy from wish (disney this is SICK AND TWISTED how could you do this...)
 
-![image](https://github.com/Yoosunoovy/v1/assets/155345103/cc41bf9e-69c7-484e-a354-8fb6c4c2e5c6)
+![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/a4528e49-3a6e-4852-9dd2-3a4289ed238f)
