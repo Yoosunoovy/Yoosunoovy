@@ -7,6 +7,8 @@ usually on ponytown while being afk/offtab, feel free to sit with me and my frie
 
 most often in the enstars-genshin area, but if im not there im probably either in the library or in the twst/obey me area in the market
 
+i dont give out my socials! really sorry, u can friend me on roblox through my carrd tho LOL
+
 no dni list but if you do something that makes me (or my friends) uncomfortable or morally doesnt sit right with me, i just wont interact, dont be a weirdo
 
 ![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/c07842f1-898f-4d03-ac55-3715987fdd12)
