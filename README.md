@@ -3,7 +3,7 @@ this is who ur talking to.... if you even care...
 
 ![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/54115bec-ce7b-4085-8e28-fec0ff2e7f69)
 
-☁️character is Souma Shiki (just like mr fr) from Play it cool, Guys! / picg. PLEASE watch it, its such a nice casual watch w/ 10 minute episodes
+☁️character is Souma Shiki (just like me fr) from Play it cool, Guys! / picg. PLEASE watch it, its such a nice casual watch w/ 10 minute episodes
 
 ☁️usually on ponytown while being afk/offtab, feel free to sit with me and my friends! we dont bite (ana does sometimes tho)
 
