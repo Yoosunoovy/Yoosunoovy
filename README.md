@@ -1,7 +1,7 @@
 # hello!! im ardawyn, erm
-this is who ur talking to.... if you even care...
+![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/0252a05b-4f1b-44b3-b909-d0726f268dbf)
 
-![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/54115bec-ce7b-4085-8e28-fec0ff2e7f69)
+☁️this is who ur talking to.... if you even care...
 
 ☁️character is Souma Shiki (just like me fr) from Play it cool, Guys! / picg. PLEASE watch it, its such a nice casual watch w/ 10 minute episodes
 
