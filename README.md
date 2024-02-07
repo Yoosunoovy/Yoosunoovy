@@ -1,5 +1,8 @@
 # hello!! im ardawyn, erm
-![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/0252a05b-4f1b-44b3-b909-d0726f268dbf)
+
+<p align="center">
+<img width="450" height="450" src= "https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/ebae6831-3762-4de9-af4d-51c62989c889)"
+</p>
 
 ☁️this is who ur talking to.... if you even care...
 
@@ -15,8 +18,12 @@
 
 ☁️no dni list but if you do something that makes me (or my friends) uncomfortable or morally doesnt sit right with me, i just wont interact, dont be a weirdo
 
-![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/c07842f1-898f-4d03-ac55-3715987fdd12)
+<p align="center">
+<img width="450" height="500" src= "https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/c07842f1-898f-4d03-ac55-3715987fdd12"
+</p>
 
 ☁️currently mourning starboy from wish (disney this is SICK AND TWISTED how could you do this...)
 
-![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/a4528e49-3a6e-4852-9dd2-3a4289ed238f)
+<p align="left">
+<img width="650" height="450" src= "https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/a4528e49-3a6e-4852-9dd2-3a4289ed238f"
+</p>
