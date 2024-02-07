@@ -11,6 +11,8 @@ this is who ur talking to.... if you even care...
 
 ☁️i dont give out my socials! really sorry, u can friend me on roblox through my carrd tho LOL
 
+☁️if my ponies were ever hypothetically used as inspo id twirl my hair and giggle and kick my feet and jump for joy. im totally fine w/ it
+
 ☁️no dni list but if you do something that makes me (or my friends) uncomfortable or morally doesnt sit right with me, i just wont interact, dont be a weirdo
 
 ![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/c07842f1-898f-4d03-ac55-3715987fdd12)
