@@ -18,6 +18,8 @@
 
 ☁️usually on ponytown while being afk/offtab, feel free to sit with me and my friends! we dont bite (ana does sometimes tho /j)
 
+☁️here for a good time AND a long one bro! im usually online most of the day and a bit throughout the night
+
 ☁️most often in the enstars-genshin area, but if im not there im probably either in the library or in the twst/obey me area in the market
 
 ☁️i dont give out my socials! really sorry, u can friend me on roblox through my carrd tho LOL
