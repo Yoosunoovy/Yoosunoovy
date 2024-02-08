@@ -4,7 +4,7 @@
 <img width="450" height="450" src= "https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/ebae6831-3762-4de9-af4d-51c62989c889)"
 </p>
 
-# ENFP/IEE/EFLV/3w4+2/397/Sanguine-Choleric/SILLY to my core
+# ENFP/IEE/EFLV/3w4+2 sx,sp/397/Sanguine-Choleric/SILLY to my core
 
 ☁️this is who ur talking to.... if you even care...
 
