@@ -8,7 +8,11 @@
 
 ☁️character is Souma Shiki (just like me fr) from Play it cool, Guys! / picg. PLEASE watch it, its such a nice casual watch w/ 10 minute episodes
 
-☁️usually on ponytown while being afk/offtab, feel free to sit with me and my friends! we dont bite (ana does sometimes tho)
+☁️PLEAAASEEE DROP MEDIA RECOMMENDATIONS!!! ill take everything you got bro. I like musicals, anime, tv shows, cartoons, music projects, music in general, mobile games, video games in general, ANYTHING I CAN GET MY HANDS ON! I love to learn about new things! its part of the reason i play this game actually!!!
+
+☁️feel free to ramble to me about things youre passionate about! strangers or friends welcome <3 promise im friendly and you really dont have to be shy :3
+
+☁️usually on ponytown while being afk/offtab, feel free to sit with me and my friends! we dont bite (ana does sometimes tho /j)
 
 ☁️most often in the enstars-genshin area, but if im not there im probably either in the library or in the twst/obey me area in the market
 
