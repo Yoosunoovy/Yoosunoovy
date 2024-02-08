@@ -4,9 +4,13 @@
 <img width="450" height="450" src= "https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/ebae6831-3762-4de9-af4d-51c62989c889)"
 </p>
 
+# ENFP/IEE/EFLV/3w4+2/397/Sanguine-Choleric/SILLY to my core
+
 ☁️this is who ur talking to.... if you even care...
 
 ☁️character is Souma Shiki (just like me fr) from Play it cool, Guys! / picg. PLEASE watch it, its such a nice casual watch w/ 10 minute episodes
+
+☁️i LOVELOVELOVE personality quiz type stuff! feel free to talk to/teach me about them! ive been into mbtis and enneagrams for a few years now but im still learning about the other stuff!
 
 ☁️PLEAAASEEE DROP MEDIA RECOMMENDATIONS!!! ill take everything you got bro. I like musicals, anime, movies, books, tv shows, cartoons, music projects, music in general, mobile games, video games in general, ANYTHING I CAN GET MY HANDS ON! I love to learn about new things! its part of the reason i play this game actually!!!
 
