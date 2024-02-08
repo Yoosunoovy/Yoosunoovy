@@ -8,7 +8,7 @@
 
 ☁️character is Souma Shiki (just like me fr) from Play it cool, Guys! / picg. PLEASE watch it, its such a nice casual watch w/ 10 minute episodes
 
-☁️PLEAAASEEE DROP MEDIA RECOMMENDATIONS!!! ill take everything you got bro. I like musicals, anime, tv shows, cartoons, music projects, music in general, mobile games, video games in general, ANYTHING I CAN GET MY HANDS ON! I love to learn about new things! its part of the reason i play this game actually!!!
+☁️PLEAAASEEE DROP MEDIA RECOMMENDATIONS!!! ill take everything you got bro. I like musicals, anime, movies, books, tv shows, cartoons, music projects, music in general, mobile games, video games in general, ANYTHING I CAN GET MY HANDS ON! I love to learn about new things! its part of the reason i play this game actually!!!
 
 ☁️feel free to ramble to me about things youre passionate about! strangers or friends welcome <3 promise im friendly and you really dont have to be shy :3
 
