@@ -37,3 +37,5 @@
 <p align="left">
 <img width="650" height="450" src= "https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/a4528e49-3a6e-4852-9dd2-3a4289ed238f"
 </p>
+
+![image](https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/cd9f1d20-148b-48b1-b935-3440ecb0b71a)
