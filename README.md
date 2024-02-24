@@ -14,7 +14,7 @@
 
 ☁️PLEAAASEEE DROP MEDIA RECOMMENDATIONS!!! ill take everything you got bro. I like musicals, anime, movies, books, tv shows, cartoons, music projects, music in general, mobile games, video games in general, ANYTHING I CAN GET MY HANDS ON! I love to learn about new things! its part of the reason i play this game actually!!!
 
-☁️feel free to ramble to me about things youre passionate about! strangers or friends welcome <3 promise im friendly and you really dont have to be shy :3
+☁️feel free to ramble to me about things youre passionate about! strangers or friends welcome <3 promise im friendly and you really dont have to be shy :3 (might be offtab tho, oops, youll have to catch me when im alive)
 
 ☁️usually on ponytown while being afk/offtab, feel free to sit with me and my friends! we dont bite (ana does sometimes tho /j)
 
