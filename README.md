@@ -1,4 +1,4 @@
-# hello!! im ardawyn, erm
+
 
 <p align="center">
 <img width="450" height="450" src= "https://github.com/Yoosunoovy/Yoosunoovy/assets/155345103/ebae6831-3762-4de9-af4d-51c62989c889)"
