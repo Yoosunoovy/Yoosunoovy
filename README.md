@@ -5,8 +5,9 @@
 </p>
 
 # ENFP/IEE/EFLV/3w4+2 sx,sp/397/Sanguine-Choleric/VERYSILLY!!
+hello 👋
 
-☁️ Hey if my ponies were ever hypothetically used as inspo id twirl my hair and giggle and kick my feet and jump for joy. im totally fine w/ it
+☁️ if my ponies were ever hypothetically used as inspo id twirl my hair and giggle and kick my feet and jump for joy. im totally fine w/ it
 
 ☁️ no dni list but if you do something that makes me (or my friends) uncomfortable or morally doesnt sit right with me, i just wont interact, dont be a weirdo
 
