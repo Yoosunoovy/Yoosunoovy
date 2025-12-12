@@ -1,4 +1,4 @@
-<img src="(https://i.pinimg.com/736x/e7/f8/1e/e7f81edba80c2e5e9d11e34fa49839b4.jpg)" width="400" height="400">
+![idea](https://github.com/user-attachments/assets/f3c7e791-598d-49e1-99b2-d4ac8bfba66b)
 
 knb sillies..
 
