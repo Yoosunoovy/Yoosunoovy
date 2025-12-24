@@ -94,7 +94,7 @@ characters
 </div>
    
 <p align="left">
-Il Dottore, Yumemizuki Mizuki, Furina, Wriothesley, Seth Lowell, Riddle Rosehearts, Ruggie Bucchi, Iori Motohashi, Ohse Minato, Solomon, Mammon, Marius von Hagen, Tokai Teio, Atsushi Nakajima, Ranpo Edogawa, Kabru, Shun Kaidou, Zero Kiryu, Maka Albarn, Crona, Souma Shiki, Sasara Nurude, Kajiyama Fuuta, Aria Stark, ANDREW NEIMAN, Laurence Zvhal, Dohwa Baek, Jax,
+Il Dottore, Yumemizuki Mizuki, Furina, Wriothesley, Seth Lowell, Riddle Rosehearts, Ruggie Bucchi, Iori Motohashi, Ohse Minato, Solomon, Mammon, Marius von Hagen, Tokai Teio, Atsushi Nakajima, Ranpo Edogawa, Kabru, Shun Kaidou, Zero Kiryu, Maka Albarn, Crona, Souma Shiki, Sasara Nurude, Kajiyama Fuuta, Aria Stark, ANDREW NEIMAN, Laurence Zvhal, Dohwa Baek, Jax, Jay Walker
 
 
 <div>
