@@ -62,7 +62,7 @@ movies/shows
 </div>
    
 <p align="right">
-WHIPLASH, twilight, top gun, the breakfast club, lost boys, the labyrinth, dead poets society, disney hercules, guardians of the galaxy, harry potter, the maze runner, the hunger games, interview with the vampire, game of thrones, stranger things, dawsons creek, spiderverse, tobey maguire spiderman, bee and puppycat, haunted hotel, arcane, the amazing digital circus, miraculous ladybug, smiling friends, hazbin hotel, winx, monster high, ever after high, ninjago, rainbow brite
+WHIPLASH, twilight, top gun, the breakfast club, lost boys, the labyrinth, dead poets society, disney hercules, guardians of the galaxy, harry potter, the maze runner, the hunger games, interview with the vampire, game of thrones, supernatural, stranger things, dawsons creek, spiderverse, tobey maguire spiderman, bee and puppycat, haunted hotel, arcane, the amazing digital circus, miraculous ladybug, smiling friends, hazbin hotel, winx, monster high, ever after high, ninjago, rainbow brite
 
 <div>
   <h3>
@@ -72,7 +72,7 @@ animanga
  </em>
 </div>
 
-naruto, play it cool guys, soul eater, vampire knight, dungeon meshi, ouran highschool host club, the promised neverland, umamusume, rezero, kurokos basketball, haikyuu, saiki k, ranma 1/2, bungo stray dogs, yugioh, pokemon indigo league, nanbaka, beastars
+naruto, play it cool guys, soul eater, vampire knight, dungeon meshi, ouran highschool host club, the promised neverland, umamusume, rezero, kurokos basketball, haikyuu, saiki k, ranma 1/2, bungo stray dogs, yugioh, pokemon indigo league, nanbaka, beastars, Precure
 
 <div>
   <h3>
@@ -89,12 +89,24 @@ take care, sign crushes motorist, gakhed, yoko shimomura, alex g, adrianne lenke
   <h3>
  <em>
 <p align="left">
+characters
+ </em>
+</div>
+   
+<p align="left">
+Il Dottore, Yumemizuki Mizuki, Furina, Wriothesley, Seth Lowell, Riddle Rosehearts, Ruggie Bucchi, Iori Motohashi, Ohse Minato, Solomon, Mammon, Marius von Hagen, Tokai Teio, Atsushi Nakajima, Ranpo Edogawa, Kabru, Shun Kaidou, Zero Kiryu, Maka Albarn, Crona, Souma Shiki, Sasara Nurude, Kajiyama Fuuta, Aria Stark, ANDREW NEIMAN, Laurence Zvhal, Dohwa Baek, Jax,
+
+
+<div>
+  <h3>
+ <em>
+<p align="right">
 misc.
  </em>
 </div>
 
-<p align="left">
-milgram project, hypmic, fragaria memories, charisma house, the magnus archives, artiswitch, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, flamingo/albert,
+<p align="right">
+milgram project, hypmic, fragaria memories, charisma house, the magnus archives, artiswitch, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, flamingo/albert, typeology nerd
 
 
 
