@@ -107,7 +107,7 @@ misc.
 
 <div>
 <p align="right">
-milgram project, hypmic, fragaria memories, charisma house, the magnus archives, artiswitch, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, flamingo/albert, typeology nerd
+milgram project, hypmic, fragaria memories, charisma house, the magnus archives, artiswitch, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, flamingo/albert, typeology nerd, STAMPS AND BLINKIES
 <div>
 
 <div>
