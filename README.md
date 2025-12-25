@@ -110,10 +110,6 @@ misc.
 milgram project, hypmic, fragaria memories, charisma house, the magnus archives, artiswitch, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, flamingo/albert, typeology nerd, STAMPS AND BLINKIES
 <div>
 
-<div>
-<p align="center">
-<img width="250" height="234" alt="tumblr_aecd3bca77ae47683f5fcd3330d04c25_4286b0cb_250" src="https://github.com/user-attachments/assets/bd6944f1-b9c1-4901-9018-558a7aeab2d0" />
-</div>
 
 <p align="center">
  <img width="314" height="41" alt="longbow" src="https://github.com/user-attachments/assets/4670fbe1-1d57-4c65-bfac-98b8ded02c09" />
