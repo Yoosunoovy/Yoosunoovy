@@ -150,8 +150,10 @@ milgram project, hypmic, fragaria memories, charisma house, the magnus archives,
 <img width="150" height="20" src=https://64.media.tumblr.com/c1e8e79401492636530be58d2b1a3f73/a98505caa9805f22-f1/s250x400/02cb0cd8426070faa41de8876d5c0432b1b45bbd.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/40efd6705d1b9869df0c326e1d797b51/5559d93cf6c21722-c9/s250x400/2f48e67000c83414b0ee24153d005b6b584b3a26.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g89.gif>
+<img width="150" height="20" src=https://64.media.tumblr.com/abc4652040ca69f397c70504bd476841/a42d46b711f8452d-ba/s100x200/82cae21b7df9d5910f89208b70f63c0c16960036.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/6b6ed621673f2935f9febc3d1e1cd0c1/4e8ba393fb8cabb2-b2/s250x400/5c9a4bc9110f63bf60b92c5d3e57d2c87259881e.webp>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g95.gif>
+<img width="150" height="20" src=https://64.media.tumblr.com/05f66d7a8974061e6a885be3692dffc2/e6425a19f59517be-a7/s250x400/6397c08a253cd580a6d3870d89f6d9404eae859b.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g117.gif>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g100.gif>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g116.gif>
@@ -162,19 +164,55 @@ milgram project, hypmic, fragaria memories, charisma house, the magnus archives,
 <img width="150" height="20" src=https://64.media.tumblr.com/9f65931e7aea8d4ebb55b5d49509b062/79c352b135efec0d-3c/s400x600/893d952246093a6635b10976dcce87e9a7e8edd5.gifv
 <img width="150" height="20" src=https://64.media.tumblr.com/9fbfcc1991692f809f5b2ace312927a0/18c6457bcfaabf9a-b6/s250x400/72ac237048e33284b8b354965f73a84e5fa88571.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/e054c158bddd905f25bcc55c62a4cd29/0112a5e21acb24ee-8b/s250x400/7649f884e8633fb19cb242a17488341eb598c7de.gifv>
+<img width="150" height="20" src=https://64.media.tumblr.com/bb0c815e140f7710ede686f38ae26add/89c7056a66bd5d40-33/s250x400/034377272ddb770d07a87d1dcd915ddbce3d7e2c.gifv>
 
 <img width="150" height="20" src=https://64.media.tumblr.com/4cb522e9d258b6277714222de843f21e/abcb69d3f55b962c-79/s250x400/bde027c49028412c2dbf571f3a1db25a1835d76c.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/682df72f2823256d5118ba9fd5d0dc85/4e8ba393fb8cabb2-ca/s250x400/0debedbd29f7737ac63a92ca246cfcbb85125f7d.webp>
 <img width="150" height="20" src=https://64.media.tumblr.com/b844efcefcbef866448184e89f6ecda1/1601b740f5d2602f-14/s250x400/44e06db461b41362c40cdd5d0922804a6286e475.gifv>
-
+<img width="150" height="20" src=https://64.media.tumblr.com/12e09233a210122189bb937876fa600e/acf30207513d4a6d-1e/s250x400/a6606702560288db55542215d6ef14c685d1f3da.gifv>
  
-
+<div>
  <p align="center">
  <img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/moonstars.gif> <img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/moonstars.gif> 
+<div>
 
 <p align="center">
+<img width="99" height="56" alt="tumblr_static_11yz3ug0heyskckcsgk4soswg" src="https://github.com/user-attachments/assets/1415efac-a9c3-4dc0-93f0-dca1560cc8aa" />
+<img width="99" height="56" src=https://y2k.neocities.org/stamps/tumblr_inline_pe6lflH4He1v11djx_1280.gif>
+<img width="99" height="56" src=https://y2k.neocities.org/stamps/tumblr_inline_pe6lgnMpVC1v11djx_1280.gif>
+<img width="99" height="56" src=https://y2k.neocities.org/stamps/tumblr_inline_pe6lflk3co1v11djx_1280.gif>
+<img width="99" height="56" src=https://y2k.neocities.org/stamps/tumblr_inline_pe6lw0vkoA1v11djx_1280.gif>
+<img width="99" height="56" src=https://y2k.neocities.org/stamps/tumblr_inline_pe6lvuFa5A1v11djx_1280.gif>
+<img width="99" height="56" src=https://64.media.tumblr.com/8bae2a2755091eb4302e4f5092e858aa/659d822466175fd3-fc/s250x400/2eccc140234a314effb5cc1a17b343ced41e96be.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/288b701ff04a4b6f3774ab3d054c0987/659d822466175fd3-a5/s100x200/e418400397cbeebb97e88677b34c5ead70f8ff11.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/ca8c7e8e2a0f619906c6d6a37625fa31/659d822466175fd3-2a/s100x200/a7537be7aad912b9ed010165d8c4ae982aca119c.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/9adee3819bbd291d8af03b5bb03dc45b/659d822466175fd3-2a/s100x200/fa52a25776cf0a8e9a94ff8a7aec90ef39cc8b30.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/f69f22452da0483c78c2a75014f06e9a/659d822466175fd3-92/s100x200/8f6939e9c21496b06d2bdfa5e7e988a63ab31e9d.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/d3d49488e6f4a1a647637b41ba1a13ed/2392e7c1f6f7c3e5-dd/s100x200/ff5ac2d31082a7d535edfe725b3cadac36128401.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/bf248c970588a5a7b5bdd46e35abf63d/2392e7c1f6f7c3e5-ea/s100x200/326e54cc29155640fd9b2485669a608c972c1ad7.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/1b5c670b85e7217eaf8570103f56fbc1/2392e7c1f6f7c3e5-06/s100x200/92e033be8acc54da21b90a1ccb9a21a3069015e6.webp>
+<img width="99" height="56" src=https://64.media.tumblr.com/37762c656a457fcea750d5c392c83dd5/55e0f5789aaa2286-be/s250x400/c0d2f4ef3dafc46f8467681f736e3efb69118037.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/505ca43d5f36d4bb18581393f2f04eca/d707fae9335da723-92/s100x200/4d1e14519d93fe1e60a30b0dfcd4d65881dad280.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/788a3f7fb7db486fce07cec1593173d7/387bdd6d14b9be5a-54/s250x400/c0e0bc755c611332f5592c7b7f1c9587437a0999.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/cc0c10d58aba899a80f9cf8b91c59090/8fb2527e26ea09fc-6f/s400x600/e4e6eed2eaf36d931a5ff5544d95f3adce8d61f9.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/4679000196059f66da0b6c446ea3856c/a42d46b711f8452d-07/s100x200/974774e64e21d0f26f507e99e87c528fc688105a.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/7c5d3da99aa0fcc4e24ae0a45ed04596/370a935e78c848f4-a0/s100x200/3cd03255abb30785637d2477c2b7b800e784721e.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/8c093127b4256534baa7669818135eb6/e64544a96e87c514-b4/s250x400/e587d7a420d42402cb0a2c75ecaf4c160b0c2159.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/e1f6060b1c3321374d3561288b7bbae6/e64544a96e87c514-41/s250x400/9fe5e4a3d43d54865c75c2d4bf2fcbf8a86b6c43.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/2fdba01cd00aec09bc006c912a7aaef4/e64544a96e87c514-0d/s250x400/9dfd0f7e24a755578d7c829df27b715efcb755e5.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/b0b98c0650d780c54dd4a44fbdc8954f/b0da776e3de862a3-d9/s100x200/7e97b5db6b08c3649f8077db59b1c549d7350b2c.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/9b0947a48eaa0bf4d6eefb67a1648ae8/b0da776e3de862a3-00/s100x200/b4cf549c93f5b34c083b2c75bfc516c49173da8b.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/d9f2b800b2f50b5227a86ae0211ace81/2276581bcc10d124-28/s250x400/d059d272dca60577e680f9661e58cbff6e48527d.jpg>
+<img width="99" height="56" src=https://64.media.tumblr.com/29bd0443c3933258a857f82570edd4e3/443a8b8515ccb5c8-60/s250x400/3ac9059e492d4dfd78e84c6a9e056bca8ccbc50e.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/ffe01592db6675ce3ef259e17ed238f5/e6425a19f59517be-b9/s100x200/10d3b4b64d2c685d19cd40a8be910142d9fa6282.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/1d0e2365afb865be2a9a90cc051a36a2/305efdfa73ca10b9-a0/s100x200/facfeb5786d61f49b19dc8a5fbe7d1a12514583f.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/86fdb60f02a3a2635c1e6b2716306985/305efdfa73ca10b9-7d/s100x200/683e690412ca2d772b56764965bb7e0dd1ed7162.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/1ad3f389a1f1be27b8262e0091baf1e0/e6425a19f59517be-a2/s100x200/f917cffaa6f41d540bc3a5c6265721eb74303152.gifv>
+ 
+<div>
+<p align="center">
 <img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/pearlbows.gif><img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/pearlbows.gif>
-
+<div>
 
 
 
