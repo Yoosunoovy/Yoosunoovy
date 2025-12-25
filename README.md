@@ -43,9 +43,6 @@ likelist
  </em>
 </div>
 
-<p align="center">
-<img width="560" height="450" alt="tumblr_cf75822b128967a917a744026ecb8c5c_e594f32f_640" src="https://github.com/user-attachments/assets/4e40f49d-ea50-4086-baaf-a2cf88af1abb" />
-
 <div>
   <h3>
  <em>
