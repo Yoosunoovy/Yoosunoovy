@@ -30,7 +30,8 @@
 
 <p align="center">
 no dni just be a normal person please! respect eachother, peace n love!
-
+<p align="center">
+ c+h always, my friends never mind
 
 <p align="center">
  <img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/moonstars.gif> <img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/moonstars.gif> 
