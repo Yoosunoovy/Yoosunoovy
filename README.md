@@ -52,7 +52,7 @@ games
  </em>
 </div>
 
-genshin impact, zenless zone zero, tears of themis, twisted wonderland, akuneko, D4DJ, project sekai, lovebrush chronicles, obeyme!nightbringer, umamusume, bangdream, ensemble stars, r1999, cookierun, mystic messenger, LADS, the arcana, homicipher, date with death, date everything, cupid parasite, touchstarved, final fantasy X, FFXV, FFVII, FFIV, legend of zelda phantom hourglass, LOZ breath of the wild, pokemon sun&moon, danganronpa v2, DRdespair time, your turn to die, ddlc, no im not a human, stardew valley, fields of mistria, minecraft, dandys world, something evil will happen, ponytown, minesweeper
+<mark>genshin impact</mark>, <mark>zenless zone zero</mark>, tears of themis, <mark>twisted wonderland</mark>, akuneko, D4DJ, project sekai, lovebrush chronicles, <mark>obeyme!nightbringer</mark>, <mark>umamusume</mark>, bangdream, ensemble stars, r1999, cookierun, mystic messenger, LADS, the arcana, homicipher, date with death, date everything, cupid parasite, touchstarved, final fantasy X, FFXV, FFVII, FFIV, legend of zelda phantom hourglass, LOZ breath of the wild, pokemon sun&moon, danganronpa v2, DRdespair time, your turn to die, ddlc, <mark>no im not a human</mark>, stardew valley, <mark>fields of mistria</mark>, <mark>minecraft</mark>, dandys world, something evil will happen, ponytown, minesweeper, <mark>DDLC<mark>
 
 <div>
   <h3>
@@ -63,7 +63,7 @@ movies/shows
 </div>
    
 <p align="right">
-WHIPLASH, twilight, top gun, the breakfast club, lost boys, the labyrinth, dead poets society, kamikaze girls, disney hercules, guardians of the galaxy, harry potter, the maze runner, the hunger games, interview with the vampire, game of thrones, supernatural, stranger things, dawsons creek, spiderverse, tobey maguire spiderman, bee and puppycat, haunted hotel, arcane, the amazing digital circus, miraculous ladybug, smiling friends, hazbin hotel, winx, monster high, ever after high, ninjago, rainbow brite
+<mark>WHIPLASH</mark>, <mark>twilight</mark>, top gun, the breakfast club, lost boys, <mark>the labyrinth</mark>, <mark>dead poets society</mark>, kamikaze girls, disney hercules, guardians of the galaxy, harry potter, the maze runner, the hunger games, interview with the vampire, game of thrones, supernatural, stranger things, dawsons creek, spiderverse, tobey maguire spiderman, <mark>bee and puppycat</mark>, haunted hotel, arcane, <mark>the amazing digital circus</mark>, miraculous ladybug, <mark>smiling friends</mark>, hazbin hotel, winx, monster high, ever after high, ninjago, rainbow brite
 
 <div>
   <h3>
@@ -73,7 +73,7 @@ animanga
  </em>
 </div>
 
-naruto, play it cool guys, soul eater, vampire knight, dungeon meshi, ouran highschool host club, the promised neverland, umamusume, rezero, kurokos basketball, haikyuu, saiki k, ranma 1/2, bungo stray dogs, yugioh, pokemon indigo league, nanbaka, beastars, Precure
+naruto, <mark>play it cool guys</mark>, soul eater, vampire knight, <mark>dungeon meshi</mark>, ouran highschool host club, the promised neverland, <mark>umamusume</mark>, rezero, kurokos basketball, haikyuu, saiki k, ranma 1/2, bungo stray dogs, yugioh, pokemon indigo league, nanbaka, beastars, Precure
 
 <div>
   <h3>
@@ -84,7 +84,7 @@ music/musicals
 </div>
 
 <p align="right">
-take care, sign crushes motorist, gakhed, yoko shimomura, alex g, adrianne lenker, delaney bailey, mitski, fish in a birdcage, yaelokre, dandelion hands, sleeping at last, vashti bunyan, cavetown, tv girl, jeff buckley, radiohead, the cranberries, hole, fleetwood mac, dolly parton, weezer, elton john, malice mizer, lovesick, stray kids, seventeen, new jeans, olivia rodrigo, billie eilish, chappell roan, tyler the creator, the living tombstone, jt music, deco*27, vocaloid, rebecca sugar, hadestown, epic the musical, hamilton, heathers, 
+<mark>take care</mark>, <mark>sign crushes motorist</mark>, gakhed, yoko shimomura, <mark>alex g</mark>, adrianne lenker, <mark>delaney bailey</mark>, mitski, <mark>fish in a birdcage</mark>, yaelokre, dandelion hands, sleeping at last, vashti bunyan, <mark>cavetown</mark>, tv girl, jeff buckley, radiohead, <mark>the cranberries</mark>, <mark>hole</mark>, <mark>fleetwood mac</mark>, dolly parton, weezer, elton john, malice mizer, lovesick, stray kids, seventeen, new jeans, <mark>olivia rodrigo</mark>, billie eilish, chappell roan, tyler the creator, <mark>the living tombstone</mark>, jt music, deco*27, <mark>vocaloid</mark>, rebecca sugar, <mark>hadestown</mark>, <mark>epic the musical</mark>, hamilton, heathers, 
 
 <div>
   <h3>
@@ -108,7 +108,7 @@ misc.
 
 <div>
 <p align="right">
-milgram project, hypmic, fragaria memories, charisma house, the magnus archives, artiswitch, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, flamingo/albert, typeology nerd, STAMPS AND BLINKIES
+milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the magnus archives, <mark>artiswitch</mark>, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, <mark>flamingo/albert</mark>, <mark>typeology nerd</mark>, STAMPS AND BLINKIES
 <div>
 
 
