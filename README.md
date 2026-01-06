@@ -32,6 +32,8 @@
 no dni just be a normal person please! respect eachother, peace n love!
 <p align="center">
  c+h always, my friends never mind
+ <p align="center">
+ I LOVE FANDOM
 
 <p align="center">
  <img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/moonstars.gif> <img width="314" height="41" src=https://pixelsafari.neocities.org/dividers/moonstars.gif> 
@@ -118,6 +120,7 @@ milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the mag
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/e61.gif>
 <img width="150" height="20" src=https://64.media.tumblr.com/0c7542107f3bc143e233e8dd3c663817/64f2255cc166baa8-a5/s250x400/5ed92a348c9a0ecf7a845174c6dedefb57ea2d3d.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/e116.gif>
+<img width="150" height="20" src=https://64.media.tumblr.com/cc8f4b048571d7eb172a8614790a3c23/4f8d4d5182921a70-a2/s250x400/c215efcdbd25c496a5982cd0f7518dd6ac2b7d4e.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/ed735f5ec90a0c592bcddf61028da7d2/8b9058dfe421286e-ec/s400x600/86d20556855df2d4e289f6080044184969c8f6dd.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/c934d819296bc2565f05da24ace05b19/89aa1c65f70b9ed6-4c/s400x600/70504b78a6da20e365dce1c64b406f62c35f246f.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/e49.gif>
@@ -125,6 +128,7 @@ milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the mag
 <img width="150" height="20" src=https://64.media.tumblr.com/8fb9e80ff9795884bf6bcf93bb543386/c97d2d0e4a7eff7a-d4/s250x400/5c4c868baae8aaa66fa70ff90b9f8acf9a4ce4ed.jpg>
 <img width="150" height="20" src=https://64.media.tumblr.com/fee357971d61736dc48d563adcb6ca9d/c97d2d0e4a7eff7a-bc/s250x400/1197afc767cf418211d07adfb80a576bb07be14c.jpg>
 <img width="150" height="20" src=https://64.media.tumblr.com/c587c4403b47211c3c677315690c3ac0/ffd8797a3e8e4379-09/s250x400/8ff5931acc33857a12cf23ff9f4d7b4d1361a8c1.webp>
+<img width="150" height="20" src=https://64.media.tumblr.com/80f7c328d024df57ec0cd6892c700cc8/ff9c6b934fe3bf0c-9d/s250x400/0f36156f1332d9cfaa05dd2c089435828936716b.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/v26.gif>
 <img width="150" height="20" src=https://64.media.tumblr.com/940cf8dbaf3787388e1c9e7020ce4c59/c136be081d64ea6e-0b/s250x400/cd3032427cb3474440cbe9621b51af0290d980ac.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/v66.gif>
@@ -134,6 +138,7 @@ milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the mag
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/f1.gif>
 <img width="150" height="20" src=https://64.media.tumblr.com/36317a8399cf6d00af521c4a342e3988/667022ca1221b931-02/s250x400/4e87d8be928fa2e8dfbb1845fc006e2548ae84ad.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/f33.gif>
+<img width="150" height="20" src=https://64.media.tumblr.com/22763a1530b1cc5dd4dccd45071c6422/d6ad80d3dd9a8d4a-0d/s250x400/fe446f3fd696cd9f366e599ddd12a379a688cca6.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/f53.gif>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g23.gif>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g31.gif>
@@ -147,9 +152,11 @@ milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the mag
 <img width="150" height="20" src=https://64.media.tumblr.com/c1e8e79401492636530be58d2b1a3f73/a98505caa9805f22-f1/s250x400/02cb0cd8426070faa41de8876d5c0432b1b45bbd.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/40efd6705d1b9869df0c326e1d797b51/5559d93cf6c21722-c9/s250x400/2f48e67000c83414b0ee24153d005b6b584b3a26.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g89.gif>
+<img width="150" height="20" src=https://64.media.tumblr.com/8f246c50d65f0e9a661a04c155d813ec/244fdab6b045e016-a8/s250x400/205b446cbeb49a41d591b92ac9ef055ffe1fa075.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/abc4652040ca69f397c70504bd476841/a42d46b711f8452d-ba/s100x200/82cae21b7df9d5910f89208b70f63c0c16960036.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/6b6ed621673f2935f9febc3d1e1cd0c1/4e8ba393fb8cabb2-b2/s250x400/5c9a4bc9110f63bf60b92c5d3e57d2c87259881e.webp>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g95.gif>
+<img width="150" height="20" src=https://64.media.tumblr.com/b695fe89e40ddc6dd3c6aecd0afb34fa/244fdab6b045e016-af/s250x400/4a9adffeff98e788292020aac739e57e158dae3a.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/05f66d7a8974061e6a885be3692dffc2/e6425a19f59517be-a7/s250x400/6397c08a253cd580a6d3870d89f6d9404eae859b.gifv>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g117.gif>
 <img width="150" height="20" src=https://adriansblinkiecollection.neocities.org/g100.gif>
@@ -161,8 +168,16 @@ milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the mag
 <img width="150" height="20" src=https://64.media.tumblr.com/9f65931e7aea8d4ebb55b5d49509b062/79c352b135efec0d-3c/s400x600/893d952246093a6635b10976dcce87e9a7e8edd5.gifv
 <img width="150" height="20" src=https://64.media.tumblr.com/9fbfcc1991692f809f5b2ace312927a0/18c6457bcfaabf9a-b6/s250x400/72ac237048e33284b8b354965f73a84e5fa88571.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/e054c158bddd905f25bcc55c62a4cd29/0112a5e21acb24ee-8b/s250x400/7649f884e8633fb19cb242a17488341eb598c7de.gifv>
+<img width="150" height="20" src=https://64.media.tumblr.com/acfb866996370f22666bd8244fa5cd5e/d6ad80d3dd9a8d4a-3a/s250x400/86171f4a40b42439f5b3d2ded2c4d2abbb99846f.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/bb0c815e140f7710ede686f38ae26add/89c7056a66bd5d40-33/s250x400/034377272ddb770d07a87d1dcd915ddbce3d7e2c.gifv>
+<img width="150" height="20" src=https://64.media.tumblr.com/be65d83f9b165d298aa074cb5bed5699/c8eb0991c1f80ef1-5c/s250x400/52aa7cc88674d672037de594b00df2209b7f6838.gifv>
+<img width="150" height="20" src=https://64.media.tumblr.com/44b967279033b69388632a546f0f1d0d/2279b66cc95303cd-46/s250x400/9a74bd039cba88753444c24c727f5cef289af3d4.gifv>
 
+<img width="150" height="20" src=https://64.media.tumblr.com/c33dd103fc1a9339a34914fa609ca4a9/e879a98cb528266e-c1/s250x400/6b7e4c5ed9a99e6628a9e8e97588b3a703b06093.gifv>
+<img width="150" height="20" src=https://64.media.tumblr.com/82ab0fc7b35e36faa2ac7ed39bf87ca8/d6ad80d3dd9a8d4a-de/s250x400/62cde88273b370df8d8d9699b98f6809fcfca529.gifv>
+<img width="150" height="20" src=https://64.media.tumblr.com/5ea60ff493e8c2884b8a46dee0d27661/fea94a31643442fb-2a/s250x400/ed2ff0f72de5f7c6780c872abc069f2dfde98a2c.webp>
+<img width="150" height="20" src=https://64.media.tumblr.com/24451b0bca1683332dbd7afce0d49aa6/653f6aad4e132473-70/s250x400/5954e90bade9bc086db91762695573e509718ae3.gifv>
+<img width="150" height="20" src=https://64.media.tumblr.com/c6e2d968169b6872cc39ac38344cab47/f0d7eb6e599c679f-00/s250x400/d72ddf7351607e627031145124aa18f5a8410f79.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/4cb522e9d258b6277714222de843f21e/abcb69d3f55b962c-79/s250x400/bde027c49028412c2dbf571f3a1db25a1835d76c.gifv>
 <img width="150" height="20" src=https://64.media.tumblr.com/682df72f2823256d5118ba9fd5d0dc85/4e8ba393fb8cabb2-ca/s250x400/0debedbd29f7737ac63a92ca246cfcbb85125f7d.webp>
 <img width="150" height="20" src=https://64.media.tumblr.com/b844efcefcbef866448184e89f6ecda1/1601b740f5d2602f-14/s250x400/44e06db461b41362c40cdd5d0922804a6286e475.gifv>
@@ -203,8 +218,13 @@ milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the mag
 <img width="99" height="56" src=https://64.media.tumblr.com/29bd0443c3933258a857f82570edd4e3/443a8b8515ccb5c8-60/s250x400/3ac9059e492d4dfd78e84c6a9e056bca8ccbc50e.pnj>
 <img width="99" height="56" src=https://64.media.tumblr.com/ffe01592db6675ce3ef259e17ed238f5/e6425a19f59517be-b9/s100x200/10d3b4b64d2c685d19cd40a8be910142d9fa6282.gifv>
 <img width="99" height="56" src=https://64.media.tumblr.com/1d0e2365afb865be2a9a90cc051a36a2/305efdfa73ca10b9-a0/s100x200/facfeb5786d61f49b19dc8a5fbe7d1a12514583f.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/9b218e301b9719b190ea1d9c0c296867/3ccc277b4790a86b-9e/s100x200/80f25963d155d3b944e263289618420a4c3504e2.gifv>
 <img width="99" height="56" src=https://64.media.tumblr.com/86fdb60f02a3a2635c1e6b2716306985/305efdfa73ca10b9-7d/s100x200/683e690412ca2d772b56764965bb7e0dd1ed7162.pnj>
 <img width="99" height="56" src=https://64.media.tumblr.com/1ad3f389a1f1be27b8262e0091baf1e0/e6425a19f59517be-a2/s100x200/f917cffaa6f41d540bc3a5c6265721eb74303152.gifv>
+<img width="99" height="56" src=https://64.media.tumblr.com/fa6c68c3e802109e90b0cf79dd04b626/f8c08c604d48109d-85/s100x200/674348038165132154aff0b54d9fa598950ce0c9.pnj>
+<img width="99" height="56" src=https://64.media.tumblr.com/61cff6b0f90fbe75f5ebbb87fe726fc2/e26d8f72bbc1ea10-a3/s100x200/7d0ddb1b46868d56d4066a04339c2d637d05b67c.gifv>
+
+
  
 <div>
 <p align="center">
