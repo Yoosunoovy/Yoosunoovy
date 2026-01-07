@@ -86,7 +86,7 @@ music/musicals
 </div>
 
 <p align="right">
-<mark>take care</mark>, <mark>sign crushes motorist</mark>, gakhed, yoko shimomura, <mark>alex g</mark>, adrianne lenker, <mark>delaney bailey</mark>, mitski, <mark>fish in a birdcage</mark>, yaelokre, dandelion hands, sleeping at last, vashti bunyan, <mark>cavetown</mark>, tv girl, jeff buckley, radiohead, <mark>the cranberries</mark>, <mark>hole</mark>, <mark>fleetwood mac</mark>, dolly parton, weezer, elton john, malice mizer, lovesick, stray kids, seventeen, new jeans, <mark>olivia rodrigo</mark>, billie eilish, chappell roan, tyler the creator, <mark>the living tombstone</mark>, jt music, deco*27, <mark>vocaloid</mark>, rebecca sugar, <mark>hadestown</mark>, <mark>epic the musical</mark>, hamilton, heathers, +
+<mark>take care</mark>, <mark>sign crushes motorist</mark>, gakhed, yoko shimomura, <mark>alex g</mark>, adrianne lenker, <mark>delaney bailey</mark>, mitski, <mark>fish in a birdcage</mark>, yaelokre, dandelion hands, sleeping at last, vashti bunyan, <mark>cavetown</mark>, tv girl, jeff buckley, radiohead, <mark>the cranberries</mark>, <mark>hole</mark>, <mark>fleetwood mac</mark>, dolly parton, weezer, elton john, malice mizer, lovesick, stray kids, seventeen, new jeans, <mark>olivia rodrigo</mark>, billie eilish, chappell roan, tyler the creator, <mark>the living tombstone</mark>, jt music, deco*27, <mark>vocaloid</mark>, rebecca sugar, <mark>hadestown</mark>, <mark>epic the musical</mark>, hamilton, heathers, the post traumatic manifesto, +
 
 <div>
   <h3>
@@ -110,7 +110,7 @@ misc.
 
 <div>
 <p align="right">
-milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the magnus archives, <mark>artiswitch</mark>, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, <mark>flamingo/albert</mark>, <mark>typeology nerd</mark>, commedia del'arte, making keychains, STAMPS AND BLINKIES +
+milgram project, hypmic, fragaria memories, <mark>charisma house</mark>, the magnus archives, <mark>artiswitch</mark>, the post traumatic manifesto, aphmau minecraft diaries, phoenix drop high, mystreet, operation: true love, <mark>flamingo/albert</mark>, <mark>typeology nerd</mark>, commedia del'arte, making keychains, STAMPS AND BLINKIES +
 <div>
 
 
