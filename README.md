@@ -65,7 +65,7 @@ movies/shows
 </div>
    
 <p align="right">
-<mark>WHIPLASH</mark>, <mark>twilight</mark>, top gun, the breakfast club, young guns 1&2, lost boys, the outsiders, stand by me, <mark>the labyrinth</mark>, <mark>dead poets society</mark>, kamikaze girls, disney hercules, guardians of the galaxy, harry potter, the maze runner, the hunger games, interview with the vampire, game of thrones, supernatural, stranger things, dawsons creek, spiderverse, tobey maguire spiderman, <mark>bee and puppycat</mark>, haunted hotel, arcane, <mark>the amazing digital circus</mark>, miraculous ladybug, <mark>smiling friends</mark>, hazbin hotel, winx, monster high, ever after high, ninjago, rainbow brite +
+<mark>WHIPLASH</mark>, <mark>twilight</mark>, top gun, the breakfast club, young guns 1&2, lost boys, the outsiders, stand by me, <mark>the labyrinth</mark>, <mark>dead poets society</mark>, kamikaze girls, disney hercules, guardians of the galaxy, harry potter, the maze runner, the hunger games, interview with the vampire, squid game, game of thrones, supernatural, stranger things, dawsons creek, spiderverse, tobey maguire spiderman, <mark>bee and puppycat</mark>, haunted hotel, arcane, <mark>the amazing digital circus</mark>, miraculous ladybug, <mark>smiling friends</mark>, hazbin hotel, winx, monster high, ever after high, ninjago, rainbow brite +
 
 <div>
   <h3>
