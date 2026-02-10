@@ -1,3 +1,6 @@
+please support my friend (a small artist) on tiktok! she wants to start commissions but needs to build an audience first! like,comment and copy link!:D 
+[link text](https://www.tiktok.com/@fanxxiee?_r=1&_t=ZS-93oY0I4TAzC)
+
 <p align="center">
 <img width="314" height="41" alt="longbow" src="https://github.com/user-attachments/assets/4670fbe1-1d57-4c65-bfac-98b8ded02c09" />
 
